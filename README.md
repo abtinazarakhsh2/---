@@ -1,2 +1,32 @@
 # ---
 فاکتور رسمی یا فاکتور قانونی یک سند تجاری است که توسط فروشنده صادر می‌شود و شامل اطلاعات مربوط به خریدار، کالاها یا خدمات، مبلغ پرداختی، تاریخ صدور و سایر جزئیات مربوط به فروش است. فاکتور رسمی به عنوان دلیلی قانونی برای انجام معامله، اثبات خرید و فروش و حسابداری استفاده می‌شود.
+https://github.com/ariaian
+https://devdojo.com/ntsw
+https://my.desktopnexus.com/ntsw/
+https://www.walkscore.com/people/188512775529/%D9%81%D8%A7%DA%A9%D8%AA%D9%88%D8%B1-%D8%B1%D8%B3%D9%85%DB%8C
+https://sovren.media/u/ntsw/
+https://gravatar.com/wastewater956368907
+https://www.ethiovisit.com/myplace/ntsw
+https://www.mixcloud.com/ntsw/
+https://issuu.com/ntsw
+https://www.veoh.com/users/ntswir
+https://hub.docker.com/u/ntsw
+https://qiita.com/ntswir
+https://hypothes.is/users/ntsw
+https://leetcode.com/u/ntsw/
+https://beermapping.com/account/ntsw
+https://www.liveinternet.ru/users/ntsw/links/
+https://myanimelist.net/profile/esperance20009
+https://www.reverbnation.com/venue/1501147
+https://www.reverbnation.com/show/26159211
+https://www.metooo.io/e/fkhtwr-rsmy
+https://learn.microsoft.com/en-us/users/ntsw/
+https://www.tiktok.com/@bazarganiaria.com
+https://www.twitch.tv/bazarganiaria/about
+https://mastodon.social/@bazarganiaria
+https://bsky.app/profile/ntswir.bsky.social
+https://online.flippingbook.com/view/149402679/
+https://online.publuu.com/503196/1129132
+https://www.hipdf.com/preview/?share_id=QIt6twdHHkoGVGzdaX6RFA
+https://smallpdf.com/file#s=369e1cc4-fbc6-45fd-92cd-dd2e4ec8ce36
+https://yellow-rachael-5.tiiny.site/
